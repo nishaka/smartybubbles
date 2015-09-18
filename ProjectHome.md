@@ -1,0 +1,1 @@
+Smarty Bubbles is one of the most popular bubble shooter games, the perfect casual game for all ages. Combine at least 3 bubbles of the same color and try to remove all bubbles from the field. Can you set a new high score?
